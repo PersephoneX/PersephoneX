@@ -2,7 +2,7 @@
 
 ###
 
-I'm Khyathi, a seventeen-year-old math enthusiast ~~and procrastination enthusiast~~ from India!
+I'm Khyathi, a seventeen-year-old math enthusiast ~~and procrastination enthusiast~~ from India! I go by all pronouns, and I'm agender.
 
 ###
 
